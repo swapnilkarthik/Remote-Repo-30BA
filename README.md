@@ -8,3 +8,5 @@ Thursday
 Friday
 Saturday
 Sunday
+
+thurday pratice doing 10-11-2022 MORNINIG STUDUIES'
